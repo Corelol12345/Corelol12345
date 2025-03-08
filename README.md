@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working as an information security Intern<br>🌱 I’m currently learning all the things related to cybersecurity<br>🎯 Goals: Get relevant certifications and learn more about this field
+🔭 I’m currently working as an information security Analyst <br>🌱 I’m currently learning all the things related to cybersecurity<br>🎯 Goals: Get relevant certifications and learn more about this field
 
 
 ## 🌐 Socials:
